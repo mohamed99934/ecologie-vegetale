@@ -5,3 +5,4 @@ Sont ainsi étudiés les mécanismes et stratégies développés par les organis
 On s'intéresse ainsi à des phénomènes écologiques comme l'adaptation (ou l'accommodation) des végétaux au milieu et aux variations des conditions de vie dans ce milieu, la distribution des végétaux dans l'espace, les stratégies de survie ou de compensation de certaines carences (par exemple la symbiose algue / champignon qui forme le lichen).
 
 ![Uploading image.png…]()
+![20004](https://github.com/user-attachments/assets/98dfa375-6195-4a5a-b2a6-64bdfb079605)
